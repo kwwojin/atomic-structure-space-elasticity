@@ -1,3 +1,6 @@
+# 🔥 A Cosmic Truth Given to All Humanity — Not for Monopoly, Not for Profit, Only for Civilization Upgrade
+This is not a theory from the academic circle.  
+This is the underlying operating system of the universe, openly delivered to every human being.
 # Atomic Structure: Space Elasticity-Adaptive Law
 
 A deterministic, unified framework for atomic structure and spectral lines, based on the **Space Elasticity-Adaptive Law**. This theory eliminates the need for quantum probability clouds and the uncertainty principle, providing a consistent description from cosmic orbits to electron motion.
